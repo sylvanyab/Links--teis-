@@ -1,10 +1,12 @@
 
-<img width=100% botton=50px src="https://assets.pinterest.com/ext/embed.html?id=44895327532736377"/>
-
-# Links-uteis
 
 
 
-![image](https://github.com/user-attachments/assets/a8c2556b-ee9d-48a5-9996-9fb151b557b2)
+# ⋆⭒˚｡⋆₊ ⊹ Links-Úteis ⋆⭒˚｡⋆₊ ⊹
+
+  <img src="https://github.com/sylvanyab/Links-necessarios/blob/main/download.gif">
+
+
+
 
 
